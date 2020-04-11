@@ -1,4 +1,4 @@
 ## Welcome to Velaskec Grow Tent
 
 * My first record
-* My second record
+* We have bought all the supplies we need to make a grow tent farm stathion now let the journey begin!
